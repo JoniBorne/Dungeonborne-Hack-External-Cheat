@@ -11,7 +11,7 @@
 
 ---
 
-![Main Page Dungeonborne Cheat Menu](https://github.com/user-attachments/assets/fd766e5e-0856-4919-bcff-7ef6bc961aaa)
+![Main Page Dungeonborne Cheat Menu](https://github.com/user-attachments/assets/37ffac50-e2a9-4bac-b08c-b46dcae15fac)
 
 ---
 ## 🔍 Advanced Gameplay Features for Ultimate Control  
@@ -79,12 +79,14 @@ Take a closer look at the advanced features of our **Dungeonborne Hack** in acti
 ### 🧭 Aimbot Precision  
 Experience pinpoint accuracy with our **Aimbot** settings:  
   
-![Aimbot Menu Cheat Dungeonborne](https://github.com/user-attachments/assets/c25134a8-9f48-4edf-80ac-f7269413523e)
+![Aimbot Menu Cheat Dungeonborne](https://github.com/user-attachments/assets/ebb8e21e-443a-463a-b590-5d113b10de76)
+
 
 ### 🌌 Enhanced Visuals  
 Stay ahead with the highly customizable **ESP Visuals**:  
 
-![Visuals Dungeonborne Menu Hack](https://github.com/user-attachments/assets/ac4545de-d910-4c3f-802b-d381733c5a13)
+![Visuals Dungeonborne Menu Hack](https://github.com/user-attachments/assets/777d367e-cb7a-4b94-af15-f528dd59eb83)
+
 
 Explore these powerful tools and elevate your gameplay to new heights!  
  
